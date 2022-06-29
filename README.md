@@ -1,1 +1,1 @@
-# Ether-Airdrop
+# Ether Airdrop
